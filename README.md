@@ -2,7 +2,7 @@
 
 **黑名单（欠工资，不签合同等存在严重问题的公司，原因不一一说明了反正一定不要去）**：
 
-创搜，企ren商mao，物lian佳mei，万guo，翰xuan，趣yin。首guang和捷liang（诈骗公司）
+创搜，企ren商mao，物lian佳mei，万guo，翰xuan，趣yin。首guang和捷liang（诈骗公司）慕ke传媒（员工流动大，加班多压力大）
 
 **RZ名单**：
 
