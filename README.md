@@ -11,14 +11,6 @@
 地点：武进科教城
 描述：BOSS直聘上工资特别高，到了那边面试只有2.5k，而且社保和补助一个都没有。特别坑，千万不要去。
 
-**RZ名单**：
-
-wangyu，daiqijian，liuling。fengwen
-
-**SB名单**：
-
-xushuainian
-
 **有风险的公司**：
 
 1、大zhi云校（项目做完就把你T了）
